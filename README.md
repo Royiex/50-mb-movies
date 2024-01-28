@@ -2,27 +2,27 @@
 ## 50 Mb Movies and Shows for Discord
 
 
-### 𝟑 𝐈𝐝𝐢𝐨𝐭𝐬 [𝟐𝟎𝟎𝟗] [𝐄𝐍𝐆𝐒𝐔𝐁] [𝐇𝐀𝐑𝐃𝐒𝐔𝐁] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+### 3 Idiots [2009] [ENGSUB] [HARDSUB] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/815500470188638259/864519178235936788/3_Idiots_2009.webm
  
  
-### 𝐀𝐥𝐚𝐝𝐝𝐢𝐧 [𝟏𝟗𝟗𝟐] [𝐇𝐃𝐑] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+### Aladdin [1992] [HDR] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/733513162510565377/904108500425277460/Aladdin.1992.200p.VP9.HDR-SiMULPING.webm
  
  
-### 𝐀𝐦𝐞𝐥𝐢𝐞 (𝐋𝐞 𝐅𝐚𝐛𝐮𝐥𝐞𝐮𝐱 𝐃𝐞𝐬𝐭𝐢𝐧 𝐝'𝐀𝐦é𝐥𝐢𝐞 𝐏𝐨𝐮𝐥𝐚𝐢𝐧) [𝟐𝟎𝟎𝟏] [𝐄𝐍𝐆𝐒𝐔𝐁] [𝐇𝐀𝐑𝐃𝐒𝐔𝐁] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+### Amelie (Le Fabuleux Destin d'Amelie Poulain) [2001] [ENGSUB] [HARDSUB] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/887182822664699914/Amelie_2001.webm
  
  
-### 𝐀𝐦𝐞𝐫𝐢𝐜𝐚𝐧 𝐏𝐬𝐲𝐜𝐡𝐨 [𝟐𝟎𝟎𝟎] [𝐂𝐔𝐓 𝐎𝐏𝐄𝐍𝐈𝐍𝐆] [𝐂𝐔𝐓 𝐂𝐑𝐄𝐃𝐈𝐓𝐒] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+### American Psycho [2000] [CUT OPENING] [CUT CREDITS] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/677266163994198020/980285710772887552/American_Psycho_2000.webm
  
  
-### 𝐀𝐧𝐧𝐢𝐡𝐢𝐥𝐚𝐭𝐢𝐨𝐧 [𝟐𝟎𝟏𝟖] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+### Annihilation [2018] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/677266163994198020/938883385357631628/Annihilation.2018.DiSCORDiFY.webm
  
  
-### 𝐀𝐫𝐜𝐚𝐧𝐞 𝐒𝟏𝐄𝟏-𝐒𝟏𝐄𝟗 [𝟐𝟎𝟐𝟏] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+### Arcane S1E1-S1E9 [2021] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/928203131429486622/928203849255243796/Arcane-S01E01.webm
 https://cdn.discordapp.com/attachments/928203131429486622/928203852518404116/Arcane-S01E02.webm
 https://cdn.discordapp.com/attachments/928203131429486622/928204269516120064/Arcane-S01E03.webm
@@ -34,23 +34,23 @@ https://cdn.discordapp.com/attachments/928203131429486622/928204923781414972/Arc
 https://cdn.discordapp.com/attachments/928203131429486622/928205012960690226/Arcane-S01E09.webm
  
  
-### 𝐀𝐯𝐚𝐭𝐚𝐫 𝐄𝐂𝐄 [𝟐𝟎𝟎𝟗] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+### Avatar ECE [2009] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/475304610567946240/887138218045222912/Avatar_ECE_2009.webm
  
  
-### 𝐀𝐯𝐞𝐧𝐠𝐞𝐫𝐬: 𝐄𝐧𝐝𝐠𝐚𝐦𝐞 [𝟐𝟎𝟏𝟗] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+### Avengers: Endgame [2019] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/872294186156707890/Avengers_Endgame_2019.webm
  
  
-### 𝐀𝐯𝐞𝐧𝐠𝐞𝐫𝐬: 𝐈𝐧𝐟𝐢𝐧𝐢𝐭𝐲 𝐖𝐚𝐫 [𝟐𝟎𝟏𝟖] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+### Avengers: Infinity War [2018] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/872688643851034684/Avengers_Infinity_War_2018.webm
  
  
-### 𝐁𝐚𝐛𝐲 𝐃𝐫𝐢𝐯𝐞𝐫 [𝟐𝟎𝟏𝟕] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+### Baby Driver [2017] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/898454954627452948/Baby_Driver_2017.webm
  
  
-### 𝐁𝐄𝐀𝐒𝐓𝐀𝐑𝐒 𝐒𝟏𝐄𝟏-𝐒𝟐𝐄𝟏𝟐 [𝟐𝟎𝟐𝟎-𝟐𝟎𝟐𝟏] [𝐄𝐍𝐆𝐒𝐔𝐁] [𝐇𝐀𝐑𝐃𝐒𝐔𝐁] [𝐌𝐏𝟒] [𝐇.𝟐𝟔𝟒/𝐀𝐀𝐂]
+### BEASTARS S1E1-S2E12 [2020-2021] [ENGSUB] [HARDSUB] [MP4] [H.264/AAC]
 https://cdn.discordapp.com/attachments/777733936172367903/858297392909516871/BEASTARS_S1E1.mp4
 https://cdn.discordapp.com/attachments/777733936172367903/858297399462461450/BEASTARS_S1E2.mp4
 https://cdn.discordapp.com/attachments/777733936172367903/858328629539504138/BEASTARS_S1E3.mp4
@@ -78,7 +78,7 @@ https://cdn.discordapp.com/attachments/777733936172367903/863764135639515166/BEA
 https://cdn.discordapp.com/attachments/777733936172367903/863419386382516224/BEASTARS_S2E12.webm
  
  
-### 𝐁𝐄𝐀𝐒𝐓𝐀𝐑𝐒 𝐒𝟏𝐄𝟏-𝐒𝟐𝐄𝟏𝟐 [𝟐𝟎𝟐𝟎-𝟐𝟎𝟐𝟏] [𝐄𝐍𝐆𝐒𝐔𝐁] [𝐇𝐀𝐑𝐃𝐒𝐔𝐁] [𝐖𝐄𝐁𝐌] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+### BEASTARS S1E1-S2E12 [2020-2021] [ENGSUB] [HARDSUB] [WEBM] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/898118863982567464/BEASTARS_S01E01_-_Their_Determination.webm
 https://cdn.discordapp.com/attachments/730407187351994429/898127155693768704/BEASTARS_S01E02_-_The_Heart_of_the_School_is_in_the_Garden.webm
 https://cdn.discordapp.com/attachments/730407187351994429/898128950985883688/BEASTARS_S01E03_-_A_Wolf_Male_is_Born.webm
@@ -106,19 +106,19 @@ https://cdn.discordapp.com/attachments/730407187351994429/898392444708724787/BEA
 https://cdn.discordapp.com/attachments/730407187351994429/898392555933270016/BEASTARS_S02E12_-_The_Taste_of_Rebellion.webm
  
  
-### 𝐁𝐞𝐞 𝐌𝐨𝐯𝐢𝐞 [𝟐𝟎𝟎𝟕] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+### Bee Movie [2007] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/899230908576583700/Bee_Movie_2007.webm
  
  
-### 𝐁𝐢𝐫𝐝𝐞𝐦𝐢𝐜 [𝟐𝟎𝟏𝟎] [𝐂𝐔𝐓 𝐎𝐏𝐄𝐍𝐈𝐍𝐆] [𝐌𝐏𝟒] [𝐕𝐏𝟗/𝐀𝐀𝐂]
+### Birdemic [2010] [CUT OPENING] [MP4] [VP9/AAC]
 https://cdn.discordapp.com/attachments/677266163994198020/956258770588155985/Birdemic_2010_50mb.mp4
  
  
-### 𝐁𝐥𝐚𝐜𝐤 𝐖𝐢𝐝𝐨𝐰 [𝟐𝟎𝟐𝟏] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+### Black Widow [2021] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/718365943247536228/871726538532474880/Black_Widow_2021.webm
  
  
-### 𝐁𝐫𝐚𝐧𝐝 𝐍𝐞𝐰 𝐀𝐧𝐢𝐦𝐚𝐥 (𝐁𝐍𝐀) 𝐒𝟏𝐄𝟏-𝐒𝟏𝐄𝟏𝟐 [𝟐𝟎𝟐𝟎] [𝐄𝐍𝐆𝐒𝐔𝐁] [𝐇𝐀𝐑𝐃𝐒𝐔𝐁] [𝐌𝐏𝟒] [𝐇.𝟐𝟔𝟒/𝐀𝐀𝐂]
+### Brand New Animal (BNA) S1E1-S1E12 [2020] [ENGSUB] [HARDSUB] [MP4] [H.264/AAC]
 https://cdn.discordapp.com/attachments/779320852353122334/874588116525129728/BNA_S1E1.mp4
 https://cdn.discordapp.com/attachments/730407187351994429/874602726334562314/BNA_S1E3.mp4
 https://cdn.discordapp.com/attachments/730407187351994429/874605445543788584/BNA_S1E4.mp4
@@ -131,7 +131,7 @@ https://cdn.discordapp.com/attachments/730407187351994429/874663382513491998/BNA
 https://cdn.discordapp.com/attachments/730407187351994429/874670503552495687/BNA_S1E12.mp4
  
  
-### 𝐁𝐫𝐞𝐚𝐤𝐢𝐧𝐠 𝐁𝐚𝐝 𝐒𝟎𝟏𝐄𝟎𝟏-𝐄𝟎𝟓𝐄𝟏𝟔 [𝟐𝟎𝟎𝟖-𝟐𝟎𝟏𝟑] [𝐖𝐄𝐁𝐌] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+### Breaking Bad S01E01-E05E16 [2008-2013] [WEBM] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/900575771997904956/Breaking_Bad_S01E01_Pilot.webm
 https://cdn.discordapp.com/attachments/730407187351994429/900577545232220161/Breaking_Bad_S01E02_Cats_in_the_Bag.webm
 https://cdn.discordapp.com/attachments/730407187351994429/900581233669595136/Breaking_Bad_S01E03_And_the_Bags_in_the_River.webm
@@ -200,95 +200,95 @@ https://cdn.discordapp.com/attachments/733513162510565377/901270292486295552/Bre
 https://cdn.discordapp.com/attachments/733513162510565377/901285728401649744/Breaking_Bad_S05E16_Felina.webm
  
  
-### 𝐂𝐢𝐧𝐝𝐞𝐫𝐞𝐥𝐥𝐚 [𝟏𝟗𝟓𝟎] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+### Cinderella [1950] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/899240528565116978/Cinderella_1950.webm
  
  
-### 𝐂𝐥𝐨𝐮𝐝𝐲 𝐰𝐢𝐭𝐡 𝐚 𝐂𝐡𝐚𝐧𝐜𝐞 𝐎𝐟 𝐌𝐞𝐚𝐭𝐛𝐚𝐥𝐥𝐬 [𝟐𝟎𝟎𝟗] [𝐖𝐄𝐁𝐌] [𝐕𝐏𝟗/𝐀𝐀𝐂]
+### Cloudy with a Chance Of Meatballs [2009] [WEBM] [VP9/AAC]
 https://cdn.discordapp.com/attachments/730407187351994429/880783297406435418/Cloudy_with_a_Chance_of_Meatballs_2009.webm
  
  
-### 𝐂𝐨𝐧𝐭𝐚𝐠𝐢𝐨𝐧 [𝟐𝟎𝟏𝟏] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+### Contagion [2011] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/872441824336293898/Contagion_2011.webm
  
  
-### 𝐂𝐨𝐫𝐚𝐥𝐢𝐧𝐞 [𝟐𝟎𝟎𝟗] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+### Coraline [2009] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/733513162510565377/904108497300488253/Coraline_2009.webm
  
  
-### 𝐃𝐞𝐬𝐩𝐢𝐜𝐚𝐛𝐥𝐞 𝐌𝐞 [𝟐𝟎𝟏𝟎] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+### Despicable Me [2010] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/899206582880055346/Despicable_Me_2010.webm
  
  
-### 𝐃𝐨𝐧'𝐭 𝐋𝐨𝐨𝐤 𝐔𝐩 [𝟐𝟎𝟐𝟏] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+### Don't Look Up [2021] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/798809061385699408/925306826281611314/Dont_Look_Up_2021.webm
  
  
-### 𝐃𝐨𝐰𝐧𝐟𝐚𝐥𝐥 [𝟐𝟎𝟎𝟒] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+### Downfall [2004] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/815500470188638259/874907350895575040/Downfall_2004.webm
  
  
-### 𝐃𝐮𝐧𝐞 [𝟐𝟎𝟐𝟏] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+### Dune [2021] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/677266163994198020/918055226890665994/Dune_2021.webm
  
  
-𝐄𝐚𝐫𝐭𝐡𝐪𝐮𝐚𝐤𝐞 [𝟐𝟎𝟏𝟔] [𝐄𝐍𝐆𝐒𝐔𝐁] [𝐇𝐀𝐑𝐃𝐒𝐔𝐁] [𝐌𝐏𝟒] [𝐇.𝟐𝟔𝟒/𝐀𝐀𝐂]
+Earthquake [2016] [ENGSUB] [HARDSUB] [MP4] [H.264/AAC]
 https://cdn.discordapp.com/attachments/730407187351994429/871973216497860668/Earthquake_2016.mp4
  
  
-𝐄𝐧𝐜𝐚𝐧𝐭𝐨 [𝟐𝟎𝟐𝟏] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Encanto [2021] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/677266163994198020/931768015677186048/Encanto_2021.webm
  
  
-𝐄𝐭𝐞𝐫𝐧𝐚𝐥𝐬 [𝟐𝟎𝟐𝟏] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Eternals [2021] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/677266163994198020/930698273155588116/Eternals_2021.webm
  
  
-𝐄𝐯𝐚𝐧𝐠𝐞𝐥𝐢𝐨𝐧: 𝟏.𝟏𝟏 – 𝐘𝐨𝐮 𝐀𝐫𝐞 (𝐍𝐨𝐭) 𝐀𝐥𝐨𝐧𝐞. [𝟐𝟎𝟎𝟕] [𝐄𝐍𝐆𝐒𝐔𝐁] [𝐇𝐀𝐑𝐃𝐒𝐔𝐁] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Evangelion: 1.11 - You Are (Not) Alone. [2007] [ENGSUB] [HARDSUB] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/949354496708997120/949673444356788305/Evangelion.1.11.You.Are.Not.Alone.2007.540p.VP9.Opus.Jpn.EngSub.TiNY-dAV1nci.webm
  
  
-𝐄𝐯𝐚𝐧𝐠𝐞𝐥𝐢𝐨𝐧 𝟑.𝟎+𝟏.𝟎𝟏 𝐓𝐡𝐫𝐢𝐜𝐞 𝐔𝐩𝐨𝐧 𝐚 𝐓𝐢𝐦𝐞 [𝟐𝟎𝟐𝟏] [𝐄𝐍𝐆𝐒𝐔𝐁] [𝐇𝐀𝐑𝐃𝐒𝐔𝐁] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Evangelion 3.0+1.01 Thrice Upon a Time [2021] [ENGSUB] [HARDSUB] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/875556676323905566/888625882057564190/Evangelion_3.01.01_Thrice_Upon_a_Time_2021.webm
  
  
-𝐅𝐚𝐧𝐭𝐚𝐬𝐭𝐢𝐜 𝐌𝐫. 𝐅𝐨𝐱 [𝟐𝟎𝟏𝟎] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Fantastic Mr. Fox [2010] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/677266163994198020/965003523379060766/fantasticMrFox.webm
  
  
-𝐅𝐢𝐧𝐚𝐥 𝐅𝐚𝐧𝐭𝐚𝐬𝐲 𝐕𝐈𝐈 𝐀𝐝𝐯𝐞𝐧𝐭 𝐂𝐡𝐢𝐥𝐝𝐫𝐞𝐧 𝐂𝐨𝐦𝐩𝐥𝐞𝐭𝐞 [𝟐𝟎𝟎𝟓] [𝐄𝐍𝐆𝐒𝐔𝐁] [𝐇𝐀𝐑𝐃𝐒𝐔𝐁] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Final Fantasy VII Advent Children Complete [2005] [ENGSUB] [HARDSUB] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/805826271861932074/874586121663807589/Final_Fantasy_VII_Advent_Children_Complete_2005.webm
  
  
-𝐅𝐢𝐧𝐝𝐢𝐧𝐠 𝐍𝐞𝐦𝐨 [𝟐𝟎𝟎𝟑] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Finding Nemo [2003] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/899128684663963698/Finding_Nemo_2003.webm
  
  
-𝐅𝐫𝐞𝐞 𝐆𝐮𝐲 [𝟐𝟎𝟐𝟏] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Free Guy [2021] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/897778662450036750/Free_Guy_2021.webm
  
  
-𝐅𝐫𝐨𝐳𝐞𝐧 [𝟐𝟎𝟏𝟑] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Frozen [2013] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/899198889750589440/Frozen_2013.webm
  
  
-𝐅𝐫𝐨𝐳𝐞𝐧 𝐈𝐈 [𝟐𝟎𝟏𝟗] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Frozen II [2019] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/871266111260332053/877474248174751795/Frozen_II_2019.webm
  
  
-𝐆𝐞𝐨𝐬𝐭𝐨𝐫𝐦 [𝟐𝟎𝟏𝟕] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Geostorm [2017] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/864585630213079070/870647725719429180/Geostorm_2017.webm
  
  
-𝐆𝐡𝐨𝐬𝐭𝐛𝐮𝐬𝐭𝐞𝐫𝐬 [𝟐𝟎𝟏𝟔]
+Ghostbusters [2016]
 https://cdn.discordapp.com/attachments/632500988774842378/901783011228520489/Ghostbusters_2016.webm
  
  
-𝐆𝐡𝐨𝐬𝐭𝐛𝐮𝐬𝐭𝐞𝐫𝐬: 𝐀𝐟𝐭𝐞𝐫𝐥𝐢𝐟𝐞 [𝟐𝟎𝟐𝟏] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Ghostbusters: Afterlife [2021] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/677266163994198020/930694571711676448/Ghostbusters_Afterlife_2021.webm
  
  
-𝐆𝐫𝐚𝐯𝐢𝐭𝐲 𝐅𝐚𝐥𝐥𝐬 𝐒𝟏𝐄𝟏-𝐒𝟐𝐄𝟐𝟎 [𝟐𝟎𝟏𝟐-𝟐𝟎𝟏𝟔] [𝐌𝐏𝟒] [𝐖𝐎𝐑𝐊-𝐈𝐍-𝐏𝐑𝐎𝐆𝐑𝐄𝐒𝐒] [𝐇.𝟐𝟔𝟒/𝐀𝐀𝐂]
+Gravity Falls S1E1-S2E20 [2012-2016] [MP4] [WORK-IN-PROGRESS] [H.264/AAC]
 https://cdn.discordapp.com/attachments/730407187351994429/881793194231214120/Gravity_Falls_S1E1_Tourist_Trapped.mp4
 https://cdn.discordapp.com/attachments/730407187351994429/881804263079153684/Gravity_Falls_S1E2_The_Legend_of_the_Gobblewonker.mp4
 https://cdn.discordapp.com/attachments/730407187351994429/881805895296757800/Gravity_Falls_S1E3_Headhunters.mp4
@@ -311,95 +311,95 @@ https://cdn.discordapp.com/attachments/730407187351994429/881882965108473867/Gra
 https://cdn.discordapp.com/attachments/730407187351994429/881886076539645983/Gravity_Falls_S1E20_Gideon_Rises.mp4
  
  
-𝐆𝐫𝐞𝐞𝐧𝐥𝐚𝐧𝐝 [𝟐𝟎𝟐𝟎] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Greenland [2020] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/872333512777297950/Greenland_2020.webm
  
  
-𝐆𝐮𝐚𝐫𝐝𝐢𝐚𝐧𝐬 𝐨𝐟 𝐭𝐡𝐞 𝐆𝐚𝐥𝐚𝐱𝐲 [𝟐𝟎𝟏𝟒] [𝐈𝐌𝐀𝐗] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Guardians of the Galaxy [2014] [IMAX] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/677266163994198020/934524377888858152/Guardians.Of.The.Galaxy.IMAX.2014.DiSCORDiFY.sh.50.webm
  
  
-𝐇𝐨𝐥𝐞𝐬 [𝟐𝟎𝟎𝟑] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Holes [2003] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/899281690453770280/Holes_2003.webm
  
  
-𝐇𝐨𝐦𝐞 𝐀𝐥𝐨𝐧𝐞 𝐑𝐄𝐌𝐀𝐒𝐓𝐄𝐑𝐄𝐃 [𝟏𝟗𝟗𝟎] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Home Alone REMASTERED [1990] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/677266163994198020/930744295579873290/Home_Alone_1990_REMASTERED.webm
  
  
-𝐇𝐨𝐭𝐞𝐥 𝐑𝐰𝐚𝐧𝐝𝐚 [𝟐𝟎𝟎𝟒] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Hotel Rwanda [2004] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/475304610567946240/887503869637177364/Hotel_Rwanda_2004.webm
  
  
-𝐈𝐧𝐭𝐞𝐫𝐬𝐭𝐞𝐥𝐥𝐚𝐫 [𝟐𝟎𝟏𝟒] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Interstellar [2014] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/815500470188638259/871406421277814824/Interstellar_2014.webm
  
  
-𝐈𝐧𝐭𝐞𝐫𝐬𝐭𝐞𝐥𝐥𝐚𝐫 [𝟐𝟎𝟏𝟒] [𝐇𝐃𝐑] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Interstellar [2014] [HDR] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/733513162510565377/904108485770354748/Interstellar.2014.150p.VP9.HDR-SiMULPING.webm
  
  
-𝐈𝐧𝐭𝐨 𝐓𝐡𝐞 𝐒𝐭𝐨𝐫𝐦 [𝟐𝟎𝟏𝟒] [𝐌𝐏𝟒] [𝐇.𝟐𝟔𝟒/𝐀𝐀𝐂]
+Into The Storm [2014] [MP4] [H.264/AAC]
 https://cdn.discordapp.com/attachments/815500470188638259/858337077598093322/Into_The_Storm_2014.mp4
  
  
-𝐈𝐧𝐭𝐨 𝐓𝐡𝐞 𝐒𝐭𝐨𝐫𝐦 [𝟐𝟎𝟏𝟒] [𝐖𝐄𝐁𝐌] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Into The Storm [2014] [WEBM] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/888627566288732170/Into_The_Storm_2014.webm
  
  
-𝐈𝐏 𝐌𝐚𝐧 [𝟐𝟎𝟎𝟖] [𝐄𝐍𝐆𝐃𝐔𝐁] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+IP Man [2008] [ENGDUB] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/733513162510565377/904108431357661254/IP_Man_2008.webm
  
  
-𝐊𝐢𝐥𝐥𝐞𝐫 𝐀𝐦𝐨𝐧𝐠 𝐔𝐬 [𝟐𝟎𝟐𝟏] [𝐒𝐔𝐒] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Killer Among Us [2021] [SUS] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/815500470188638259/862911412594933830/Killer_Among_Us_2021.webm
  
  
-𝐊𝐮𝐧𝐠 𝐅𝐮 𝐏𝐚𝐧𝐝𝐚 [𝟐𝟎𝟎𝟖] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Kung Fu Panda [2008] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/899223863840358400/Kung_Fu_Panda_2008.webm
  
  
-𝐊𝐮𝐧𝐠 𝐅𝐮 𝐏𝐚𝐧𝐝𝐚 𝟐 [𝟐𝟎𝟏𝟏] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Kung Fu Panda 2 [2011] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/632500988774842378/901818787731501136/Kung_Fu_Panda_2_2011.webm
  
  
-𝐊𝐮𝐧𝐠 𝐅𝐮 𝐏𝐚𝐧𝐝𝐚 𝟑 [𝟐𝟎𝟏𝟔] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Kung Fu Panda 3 [2016] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/677266163994198020/917602807811571792/Kung_Fu_Panda_3_2016.webm
  
  
-𝐋𝐨𝐨𝐤 𝐖𝐡𝐨'𝐬 𝐁𝐚𝐜𝐤 (𝐄𝐫 𝐈𝐬𝐭 𝐖𝐢𝐞𝐝𝐞𝐫 𝐃𝐚) [𝟐𝟎𝟏𝟓] [𝐄𝐍𝐆𝐒𝐔𝐁] [𝐇𝐀𝐑𝐃𝐒𝐔𝐁] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Look Who's Back (Er Ist Wieder Da) [2015] [ENGSUB] [HARDSUB] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/815500470188638259/861858887400554496/Look_Whos_Back_Er_Ist_Wieder_Da_2015.webm
  
  
-𝐌𝐚𝐝𝐚𝐠𝐚𝐬𝐜𝐚𝐫 [𝟐𝟎𝟎𝟓] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Madagascar [2005] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/899301961281699890/Madagascar_2005.webm
  
  
-𝐌𝐨𝐧𝐬𝐭𝐞𝐫𝐬 𝐯𝐬 𝐀𝐥𝐢𝐞𝐧𝐬 [𝟐𝟎𝟎𝟗] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Monsters vs Aliens [2009] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/899306900271804477/Monsters_vs_Aliens_2009.webm
  
  
-𝐌𝐨𝐫𝐛𝐢𝐮𝐬 [𝟐𝟎𝟐𝟐] [𝐈𝐭'𝐬 𝐌𝐨𝐫𝐛𝐢𝐧 𝐭𝐢𝐦𝐞] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Morbius [2022] [It's Morbin time] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/677266163994198020/978519121736110110/Morbius.2022.288p.PROPER-DiSCORDiFY.webm
  
  
-𝐌𝐨𝐫𝐛𝐢𝐮𝐬 [𝟐𝟎𝟐𝟐] [𝐈𝐭'𝐬 𝐌𝐨𝐫𝐛𝐢𝐧 𝐭𝐢𝐦𝐞] [𝐀𝐥𝐭𝐞𝐫𝐧𝐚𝐭𝐢𝐯𝐞] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Morbius [2022] [It's Morbin time] [Alternative] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/587033245061873759/975866946870468668/Morbius.50M.webm
  
  
-𝐌𝐨𝐫𝐛𝐢𝐮𝐬 [𝟐𝟎𝟐𝟐] [𝐈𝐭'𝐬 𝐌𝐨𝐫𝐛𝐢𝐧 𝐭𝐢𝐦𝐞] [𝐂𝐔𝐓 𝐎𝐏𝐄𝐍𝐈𝐍𝐆] [𝐏𝐀𝐑𝐓𝐈𝐀𝐋𝐋𝐘 𝐂𝐔𝐓 𝐂𝐑𝐄𝐃𝐈𝐓𝐒] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Morbius [2022] [It's Morbin time] [CUT OPENING] [PARTIALLY CUT CREDITS] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/677266163994198020/978715437074350140/Morbius_2022.webm
  
  
-𝐌𝐮𝐥𝐚𝐧 [𝟏𝟗𝟗𝟖] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Mulan [1998] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/898519179869712394/Mulan_1998.webm
  
  
-𝐌𝐲 𝐍𝐞𝐢𝐠𝐡𝐛𝐨𝐫 𝐓𝐨𝐭𝐨𝐫𝐨 [𝟏𝟗𝟗𝟖] [𝐄𝐍𝐆𝐒𝐔𝐁] [𝐇𝐀𝐑𝐃𝐒𝐔𝐁 [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+My Neighbor Totoro [1998] [ENGSUB] [HARDSUB [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/888629805338230814/My_Neighbor_Totoro_1998.webm
  
  
-𝐍𝐞𝐨𝐧 𝐆𝐞𝐧𝐞𝐬𝐢𝐬 𝐄𝐯𝐚𝐧𝐠𝐞𝐥𝐢𝐨𝐧 𝐒𝟏𝐄𝟏-𝐒𝟏𝐄𝟐𝟔 [𝟏𝟗𝟗𝟓] [𝐄𝐍𝐆𝐒𝐔𝐁] [𝐇𝐀𝐑𝐃𝐒𝐔𝐁] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Neon Genesis Evangelion S1E1-S1E26 [1995] [ENGSUB] [HARDSUB] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/949351846902906900/971018365739077692/NGE_01_-_Angel_Attack_50M.webm
 https://cdn.discordapp.com/attachments/949351846902906900/971018388568678400/NGE_02_-_The_Beast_50M.webm
 https://cdn.discordapp.com/attachments/949351846902906900/971018802538106930/NGE_03_-_A_Transfer_50M.webm
@@ -428,59 +428,59 @@ https://cdn.discordapp.com/attachments/949351846902906900/971018664646148157/NGE
 https://cdn.discordapp.com/attachments/949351846902906900/971018665870909460/NGE_26_-_Take_care_of_yourself_50M.webm
  
  
-𝐏𝐞𝐧𝐠𝐤𝐡𝐢𝐚𝐧𝐚𝐭𝐚𝐧 𝐆𝟑𝟎𝐒/𝐏𝐊𝐈 [𝟏𝟗𝟖𝟒] [𝐈𝐍𝐃𝐎𝐍𝐄𝐒𝐈𝐀𝐍 𝐏𝐑𝐎𝐏𝐀𝐆𝐀𝐍𝐃𝐀] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Pengkhianatan G30S/PKI [1984] [INDONESIAN PROPAGANDA] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/892828327621066762/Pengkhianatan_G30S_PKI_1984_UNCUT.webm
  
  
-𝐏𝐫𝐢𝐧𝐜𝐞𝐬𝐬 𝐚𝐧𝐝 𝐭𝐡𝐞 𝐅𝐫𝐨𝐠 [𝟐𝟎𝟎𝟗] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Princess and the Frog [2009] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/677266163994198020/918163063943868506/Princess_and_the_Frog_2009.webm
  
  
-𝐑𝐚𝐧𝐠𝐨 [𝟐𝟎𝟏𝟏] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Rango [2011] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/899194122450128946/Rango_2011.webm
  
  
-𝐑𝐚𝐭𝐚𝐭𝐨𝐮𝐢𝐥𝐥𝐞 [𝟐𝟎𝟎𝟕] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Ratatouille [2007] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/632500988774842378/887604960269836309/Ratatouille_2007.webm
  
  
-𝐑𝐞𝐚𝐝𝐲 𝐏𝐥𝐚𝐲𝐞𝐫 𝐎𝐧𝐞 [𝟐𝟎𝟏𝟖] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Ready Player One [2018] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/888628631000195092/Ready_Player_One_2018.webm
  
  
-𝐒𝐡𝐞𝐫𝐥𝐨𝐜𝐤 𝐇𝐨𝐥𝐦𝐞𝐬 [𝟐𝟎𝟎𝟗] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Sherlock Holmes [2009] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/677266163994198020/968319736029020190/Sherlock.Holmes.2009.DiSCORDiFY-50.webm
  
  
-𝐒𝐡𝐫𝐞𝐤 [𝟐𝟎𝟎𝟏] [𝐇𝐢𝐠𝐡 𝐑𝐞𝐬] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Shrek [2001] [High Res] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/587033245061873759/876629695142187158/Shrek_2001.webm
  
  
-𝐒𝐡𝐫𝐞𝐤 [𝟐𝟎𝟎𝟏] [𝐇𝐢𝐠𝐡 𝐑𝐞𝐬] [𝐀𝐥𝐭𝐞𝐫𝐧𝐚𝐭𝐢𝐯𝐞] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Shrek [2001] [High Res] [Alternative] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/587033245061873759/950208380629295144/shrek-64kV-best-audiofix.webm 
  
  
-𝐒𝐡𝐫𝐞𝐤 [𝟐𝟎𝟎𝟏] [𝐇𝐃𝐑] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Shrek [2001] [HDR] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/899591525879652352/Shrek.2001.300p.VP9.HDR-SiMULPING.webm
  
  
-𝐒𝐡𝐫𝐞𝐤 [𝟐𝟎𝟎𝟏] [𝐇𝐃𝐑] [𝐂𝐎𝐌𝐌𝐄𝐍𝐓𝐀𝐑𝐘 𝐀𝐔𝐃𝐈𝐎] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Shrek [2001] [HDR] [COMMENTARY AUDIO] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/899559782371979294/Shrek.2001.300p.VP9.HDR.Commentary-SiMULPING.webm
  
  
-𝐒𝐡𝐫𝐞𝐤 𝟐 [𝟐𝟎𝟎𝟒] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Shrek 2 [2004] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/677266163994198020/917598190881091594/Shrek_2_2004.webm
  
  
-𝐒𝐡𝐫𝐞𝐤 𝟑 [𝟐𝟎𝟎𝟕] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Shrek 3 [2007] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/677266163994198020/917600422418608128/Shrek_3_2007.webm
  
  
-𝐒𝐡𝐫𝐞𝐤 𝐅𝐨𝐫𝐞𝐯𝐞𝐫 𝐀𝐟𝐭𝐞𝐫 [𝟐𝟎𝟏𝟎] (𝐀.𝐊.𝐀 𝐒𝐡𝐫𝐞𝐤 𝟒) [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Shrek Forever After [2010] (A.K.A Shrek 4) [VP9/OPUS]
 https://cdn.discordapp.com/attachments/677266163994198020/917604408219562004/Shrek_Forever_After_2010.webm
  
  
-𝐒𝐦𝐢𝐥𝐢𝐧𝐠 𝐅𝐫𝐢𝐞𝐧𝐝𝐬 𝐒𝟏𝐄𝟏-𝐒𝟏𝐄𝟖 [𝟐𝟎𝟐𝟐] [𝐌𝐏𝟒] [𝐇.𝟐𝟔𝟒/𝐎𝐏𝐔𝐒] 
+Smiling Friends S1E1-S1E8 [2022] [MP4] [H.264/OPUS] 
 https://cdn.discordapp.com/attachments/677266163994198020/932842947924349008/Smiling_Friends_S01E01_-_Desmonds_Big_Day_Out.mp4
 https://cdn.discordapp.com/attachments/677266163994198020/932848340444520478/Smiling_Friends_S01E02_-_Mr._Frog.mp4
 https://cdn.discordapp.com/attachments/677266163994198020/932854158137110528/Smiling_Friends_S01E03_-_Shrimps_Odyssey.mp4
@@ -491,35 +491,35 @@ https://cdn.discordapp.com/attachments/677266163994198020/933168333027680296/Smi
 https://cdn.discordapp.com/attachments/677266163994198020/933174513129103390/Smiling_Friends_S01E08_-_Charlie_Dies_And_Doesnt_Come_Back.mp4
  
  
-𝐒𝐨𝐧𝐢𝐜 t𝐡𝐞 𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠 [𝟐𝟎𝟐𝟎] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Sonic the Hedgehog [2020] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/888628299268505600/Sonic_The_Hedgehog_2020.webm
  
  
-𝐒𝐨𝐧𝐢𝐜 𝐭𝐡𝐞 𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠 𝟐 [𝟐𝟎𝟐𝟐] [𝐂𝐔𝐓 𝐎𝐏𝐄𝐍𝐈𝐍𝐆] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Sonic the Hedgehog 2 [2022] [CUT OPENING] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/677266163994198020/973849685661982750/Sonic_the_Hedgehog_2.webm
  
  
-𝐒𝐨𝐮𝐥 [𝟐𝟎𝟐𝟎] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Soul [2020] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/888629386671185990/Soul_2020.webm
  
  
-𝐒𝐩𝐚𝐜𝐞 𝐉𝐚𝐦: 𝐀 𝐍𝐞𝐰 𝐋𝐞𝐠𝐚𝐜𝐲 [𝟐𝟎𝟐𝟏] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Space Jam: A New Legacy [2021] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/815500470188638259/869826486348173322/Space_Jam_A_New_Legacy_2021.webm
  
  
-𝐒𝐩𝐢𝐝𝐞𝐫-𝐌𝐚𝐧: 𝐍𝐨 𝐖𝐚𝐲 𝐇𝐨𝐦𝐞 [𝟐𝟎𝟐𝟏] [𝐂𝐔𝐓 𝐂𝐑𝐄𝐃𝐈𝐓𝐒] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Spider-Man: No Way Home [2021] [CUT CREDITS] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/949351846902906900/953267324494950450/Spider.Man.No.Way.Home.2021.270p.Bluray.VP9.Opus.Eng.TiNY-dAV1nci.webm
  
  
-𝐒𝐩𝐢𝐞𝐬 𝐢𝐧 𝐃𝐢𝐬𝐠𝐮𝐢𝐬𝐞 [𝟐𝟎𝟏𝟗] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Spies in Disguise [2019] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/632500988774842378/901780196238164008/Spies_In_Disguise_2019.webm
  
  
-𝐒𝐩𝐨𝐧𝐠𝐞𝐁𝐨𝐛 𝐢𝐧 𝐓𝐞𝐡𝐫𝐚𝐧 [𝟐𝟎𝟏𝟕] [𝐄𝐍𝐆𝐒𝐔𝐁] [𝐇𝐀𝐑𝐃𝐒𝐔𝐁] [𝐈𝐑𝐀𝐍𝐈𝐀𝐍 𝐁𝐎𝐎𝐓𝐋𝐄𝐆] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+SpongeBob in Tehran [2017] [ENGSUB] [HARDSUB] [IRANIAN BOOTLEG] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/864585630213079070/865489859024257024/SpongeBob_in_Tehran_2017.webm
  
  
-𝐒𝐪𝐮𝐢𝐝 𝐆𝐚𝐦𝐞 𝐒𝟏𝐄𝟏-𝐒𝟏𝐄𝟗 [𝟐𝟎𝟐𝟏] [𝐊𝐎𝐑𝐄𝐀𝐍 𝐀𝐔𝐃𝐈𝐎] [𝐄𝐍𝐆𝐒𝐔𝐁] [𝐇𝐀𝐑𝐃𝐒𝐔𝐁] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Squid Game S1E1-S1E9 [2021] [KOREAN AUDIO] [ENGSUB] [HARDSUB] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/894547509463101440/Squid_Game_S01E01_Red_Light_Green_Light.webm
 https://cdn.discordapp.com/attachments/730407187351994429/894551380331757618/Squid_Game_S01E02_Hell.webm
 https://cdn.discordapp.com/attachments/730407187351994429/894552958874832896/Squid_Game_S01E03_The_Man_with_the_Umbrella.webm
@@ -531,69 +531,69 @@ https://cdn.discordapp.com/attachments/730407187351994429/894818971197530112/Squ
 https://cdn.discordapp.com/attachments/730407187351994429/894839390214430740/Squid_Game_S01E09_One_Lucky_Day.webm
  
  
-𝐓𝐢𝐭𝐚𝐧𝐢𝐜 [𝟏𝟗𝟗𝟕] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Titanic [1997] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/875585749154672641/Titanic_1997.webm
  
  
-𝐓𝐫𝐚𝐢𝐧 𝐓𝐨 𝐁𝐮𝐬𝐚𝐧 [𝟐𝟎𝟏𝟔] [𝐄𝐍𝐆𝐒𝐔𝐁] [𝐇𝐀𝐑𝐃𝐒𝐔𝐁] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Train To Busan [2016] [ENGSUB] [HARDSUB] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/677266163994198020/918161909977579570/Train_To_Busan_2016.webm
  
  
-𝐓𝐰𝐢𝐬𝐭𝐞𝐫 [𝟏𝟗𝟗𝟔] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+Twister [1996] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/677266163994198020/917963537140314132/Twister_1996.webm
  
  
-𝐓𝐡𝐞 𝐁𝐚𝐭𝐦𝐚𝐧 [𝟐𝟎𝟐𝟐] [𝐂𝐔𝐓 𝐂𝐑𝐄𝐃𝐈𝐓𝐒] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+The Batman [2022] [CUT CREDITS] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/677266163994198020/975526106440532048/The_Batman_2022.webm
  
  
-𝐓𝐡𝐞 𝐂𝐨𝐧𝐣𝐮𝐫𝐢𝐧𝐠 [𝟐𝟎𝟏𝟑] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+The Conjuring [2013] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/677266163994198020/917614409109622804/The_Conjuring_2013.webm
  
  
-𝐓𝐡𝐞 𝐄𝐦𝐩𝐭𝐲 𝐌𝐚𝐧 [𝟐𝟎𝟐𝟎] [𝐌𝐏𝟒] [𝐇.𝟐𝟔𝟒/𝐎𝐏𝐔𝐒]
+The Empty Man [2020] [MP4] [H.264/OPUS]
 https://cdn.discordapp.com/attachments/677266163994198020/933906834010570822/The.Empty.Man.2020.SuperDiscordCompressor.mp4
  
  
-𝐓𝐡𝐞 𝐌𝐚𝐭𝐫𝐢𝐱 [𝟏𝟗𝟗𝟗] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+The Matrix [1999] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/887608640209580032/The_Matrix_1999.webm
  
  
-𝐓𝐡𝐞 𝐍𝐨𝐫𝐭𝐡𝐦𝐚𝐧 [𝟐𝟎𝟐𝟐] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+The Northman [2022] [VP9/OPUS]
  https://cdn.discordapp.com/attachments/677266163994198020/977115934772822088/The_Northman_2022.webm
  
  
-𝐓𝐡𝐞 𝐐𝐮𝐚𝐤𝐞 [𝟐𝟎𝟏𝟖] [𝐄𝐍𝐆𝐒𝐔𝐁] [𝐇𝐀𝐑𝐃𝐒𝐔𝐁] [𝐇.𝟐𝟔𝟒/𝐀𝐀𝐂]
+The Quake [2018] [ENGSUB] [HARDSUB] [H.264/AAC]
 https://cdn.discordapp.com/attachments/750049237143650395/862175536910827551/The_Quake_2018.mp4
  
  
-𝐓𝐡𝐞 𝐒𝐡𝐚𝐰𝐬𝐡𝐚𝐧𝐤 𝐑𝐞𝐝𝐞𝐦𝐩𝐭𝐢𝐨𝐧 [𝟏𝟗𝟗𝟒] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+The Shawshank Redemption [1994] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/949354496708997120/949358159225573386/The.Shawshank.Redemption.1994.270p.Bluray.VP9.Opus.Eng.TiNY-dAV1nci.webm
  
  
-𝐓𝐡𝐞 𝐒𝐩𝐨𝐧𝐠𝐞𝐁𝐨𝐛 𝐒𝐪𝐮𝐚𝐫𝐞𝐏𝐚𝐧𝐭𝐬 𝐌𝐨𝐯𝐢𝐞 [𝟐𝟎𝟎𝟒] [𝐇.𝟐𝟔𝟒/𝐀𝐀𝐂]
+The SpongeBob SquarePants Movie [2004] [H.264/AAC]
 https://cdn.discordapp.com/attachments/815500470188638259/861988767614763048/The_SpongeBob_SquarePants_Movie_2004.mp4
  
  
-𝐓𝐡𝐞 𝐖𝐚𝐯𝐞 [𝟐𝟎𝟏𝟖] [𝐄𝐍𝐆𝐒𝐔𝐁] [𝐇.𝟐𝟔𝟒/𝐀𝐀𝐂]
+The Wave [2018] [ENGSUB] [H.264/AAC]
 https://cdn.discordapp.com/attachments/750049237143650395/862295143692238848/The_Wave_2015.mp4
  
  
-𝐓𝐡𝐞 𝐘𝐞𝐚𝐫 𝐎𝐟 𝐋𝐢𝐯𝐢𝐧𝐠 𝐃𝐚𝐧𝐠𝐞𝐫𝐨𝐮𝐬𝐥𝐲 [𝟏𝟗𝟖𝟐] [𝐈𝐍𝐃𝐎𝐍𝐄𝐒𝐈𝐀𝐍 𝐒𝐔𝐁] [𝐇𝐀𝐑𝐃𝐒𝐔𝐁] [𝐇.𝟐𝟔𝟒/𝐀𝐀𝐂]
+The Year Of Living Dangerously [1982] [INDONESIAN SUB] [HARDSUB] [H.264/AAC]
 https://cdn.discordapp.com/attachments/761324833605943296/862335351493492787/The_Year_of_Living_Dangerously_1982_ID.mp4
  
  
-### 𝐓𝐮𝐫𝐧𝐢𝐧𝐠 𝐑𝐞𝐝 [𝟐𝟎𝟐𝟐] [𝐂𝐔𝐓 𝐂𝐑𝐄𝐃𝐈𝐓𝐒] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+### Turning Red [2022] [CUT CREDITS] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/949351846902906900/953048375559868446/Turning.Red.2022.270p.Web.VP9.Opus.Eng-dAV1nci.webm
  
  
-### 𝐔𝐩 [𝟐𝟎𝟎𝟗] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+### Up [2009] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/700337614112423946/894808950833299476/Up_2009.webm
  
  
-### 𝐖𝐀𝐋𝐋-𝐄 [𝟐𝟎𝟎𝟖] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+### WALL-E [2008] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/898522063764070420/WALL-E_2008.webm
  
  
-### 𝐖𝐢𝐬𝐡 𝐃𝐫𝐚𝐠𝐨𝐧 [𝟐𝟎𝟐𝟏] [𝐕𝐏𝟗/𝐎𝐏𝐔𝐒]
+### Wish Dragon [2021] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/475304610567946240/887503537095979028/Wish_Dragon_2021.webm
