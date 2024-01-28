@@ -28,8 +28,7 @@ https://cdn.discordapp.com/attachments/677266163994198020/938883385357631628/Ann
 ```
  
 ### Arcane S1E1-S1E9 [2021] [VP9/OPUS]
-
-1.
+1
 ```
 https://cdn.discordapp.com/attachments/928203131429486622/928203849255243796/Arcane-S01E01.webm
 ```
