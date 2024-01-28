@@ -1,4 +1,5 @@
 # 50 Mb Movies and Shows for Discord
+# Original by: Simulping#4720
 
 
 ## 3 Idiots [2009] [ENGSUB] [HARDSUB] [VP9/OPUS]
