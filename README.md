@@ -137,7 +137,7 @@ https://cdn.discordapp.com/attachments/777733936172367903/859338321800200192/BEA
 https://cdn.discordapp.com/attachments/777733936172367903/859340478712119316/BEASTARS_S1E12.mp4
 ```
 
-## Season 1
+## Season 2
 ### Episode 1
 ```
 https://cdn.discordapp.com/attachments/777733936172367903/863062082501214218/BEASTARS_S2E1.mp4
@@ -186,32 +186,106 @@ https://cdn.discordapp.com/attachments/777733936172367903/863764135639515166/BEA
 ```
 https://cdn.discordapp.com/attachments/777733936172367903/863419386382516224/BEASTARS_S2E12.webm
 ```
- 
+
 ## BEASTARS S1E1-S2E12 [2020-2021] [ENGSUB] [HARDSUB] [WEBM] [VP9/OPUS]
+
+## Season 1
+### Episode 1
+```
 https://cdn.discordapp.com/attachments/730407187351994429/898118863982567464/BEASTARS_S01E01_-_Their_Determination.webm
+```
+### Episode 2
+```
 https://cdn.discordapp.com/attachments/730407187351994429/898127155693768704/BEASTARS_S01E02_-_The_Heart_of_the_School_is_in_the_Garden.webm
+```
+### Episode 3
+```
 https://cdn.discordapp.com/attachments/730407187351994429/898128950985883688/BEASTARS_S01E03_-_A_Wolf_Male_is_Born.webm
+```
+### Episode 4
+```
 https://cdn.discordapp.com/attachments/730407187351994429/898209956078157904/BEASTARS_S01E04_-_Let_the_Holy_Grail_Soak.webm
+```
+### Episode 5
+```
 https://cdn.discordapp.com/attachments/730407187351994429/898226284197457930/BEASTARS_S01E05_-_Two_Sides_to_the_Story.webm
+```
+### Episode 6
+```
 https://cdn.discordapp.com/attachments/730407187351994429/898229410187071538/BEASTARS_S01E06_-_Blurred_Vision_-_Dream_or_Reality.webm
+```
+### Episode 7
+```
 https://cdn.discordapp.com/attachments/730407187351994429/898232842700611634/BEASTARS_S01E07_-_Beneath_the_Fur_Coat.webm
+```
+### Episode 8
+```
 https://cdn.discordapp.com/attachments/730407187351994429/898238542248030228/BEASTARS_S01E08_-_Like_a_Thread_on_the_Canine.webm
+```
+### Episode 9
+```
 https://cdn.discordapp.com/attachments/730407187351994429/898240019855183912/BEASTARS_S01E09_-_Into_the_Lions_Den.webm
+```
+### Episode 10
+```
 https://cdn.discordapp.com/attachments/730407187351994429/898241526252072980/BEASTARS_S01E10_-_A_Wolf_in_Sheeps_Clothing.webm
+```
+### Episode 11
+```
 https://cdn.discordapp.com/attachments/730407187351994429/898243325155487785/BEASTARS_S01E11_-_To_the_Neon_District.webm
+```
+### Episode 12
+```
 https://cdn.discordapp.com/attachments/730407187351994429/898365977350275112/BEASTARS_S01E12_-_In_the_Storms_Wake.webm
- 
+```
+
+## Season 2
+### Episode 1
+```
 https://cdn.discordapp.com/attachments/730407187351994429/898369078245351474/BEASTARS_S02E01_-_A_Teens_Never-Ending_Alarm.webm
+```
+### Episode 2
+```
 https://cdn.discordapp.com/attachments/730407187351994429/898371187250458664/BEASTARS_S02E02_-_The_Grey_Police_Hound_Runs.webm
+```
+### Episode 3
+```
 https://cdn.discordapp.com/attachments/730407187351994429/898373114411491408/BEASTARS_S02E03_-_Changes.webm
+```
+### Episode 4
+```
 https://cdn.discordapp.com/attachments/730407187351994429/898375606432038942/BEASTARS_S02E04_-_Entangled.webm
+```
+### Episode 5
+```
 https://cdn.discordapp.com/attachments/730407187351994429/898377934576947280/BEASTARS_S02E05_-_Call_it_Like_it_is.webm
+```
+### Episode 6
+```
 https://cdn.discordapp.com/attachments/730407187351994429/898380117733167124/BEASTARS_S02E06_-_Fly_O_Corrupt_One.webm
+```
+### Episode 7
+```
 https://cdn.discordapp.com/attachments/730407187351994429/898383073962520616/BEASTARS_S02E07_-_Unforgettable_Sweetness.webm
+```
+### Episode 8
+```
 https://cdn.discordapp.com/attachments/730407187351994429/898387313040719882/BEASTARS_S02E08_-_Laughing_at_the_Shadows_We_Cast.webm
+```
+### Episode 9
+```
 https://cdn.discordapp.com/attachments/730407187351994429/898389329951490118/BEASTARS_S02E09_-_A_Busted_Electric_Fan.webm
+```
+### Episode 10
+```
 https://cdn.discordapp.com/attachments/730407187351994429/898392167993729054/BEASTARS_S02E10_-_The_Chefs_Suspense.webm
+```
+### Episode 11
+```
 https://cdn.discordapp.com/attachments/730407187351994429/898392444708724787/BEASTARS_S02E11_-_Scatter_Your_Scales.webm
+```
+### Episode 12
+```
 https://cdn.discordapp.com/attachments/730407187351994429/898392555933270016/BEASTARS_S02E12_-_The_Taste_of_Rebellion.webm
  
  
