@@ -5,47 +5,79 @@
 ### 3 Idiots [2009] [ENGSUB] [HARDSUB] [VP9/OPUS]
 ```
 https://cdn.discordapp.com/attachments/815500470188638259/864519178235936788/3_Idiots_2009.webm
- ```
+```
  
 ### Aladdin [1992] [HDR] [VP9/OPUS]
+```
 https://cdn.discordapp.com/attachments/733513162510565377/904108500425277460/Aladdin.1992.200p.VP9.HDR-SiMULPING.webm
- 
+```
  
 ### Amelie (Le Fabuleux Destin d'Amelie Poulain) [2001] [ENGSUB] [HARDSUB] [VP9/OPUS]
+```
 https://cdn.discordapp.com/attachments/730407187351994429/887182822664699914/Amelie_2001.webm
- 
+```
  
 ### American Psycho [2000] [CUT OPENING] [CUT CREDITS] [VP9/OPUS]
+```
 https://cdn.discordapp.com/attachments/677266163994198020/980285710772887552/American_Psycho_2000.webm
- 
+```
  
 ### Annihilation [2018] [VP9/OPUS]
+```
 https://cdn.discordapp.com/attachments/677266163994198020/938883385357631628/Annihilation.2018.DiSCORDiFY.webm
- 
+```
  
 ### Arcane S1E1-S1E9 [2021] [VP9/OPUS]
+```
 https://cdn.discordapp.com/attachments/928203131429486622/928203849255243796/Arcane-S01E01.webm
-https://cdn.discordapp.com/attachments/928203131429486622/928203852518404116/Arcane-S01E02.webm
+```
+
+```
+https://cdn.discordapp.com/attachments/928203131429486622/928203852518404116/Arcane-S01E02.webmć
+```
+
+```
 https://cdn.discordapp.com/attachments/928203131429486622/928204269516120064/Arcane-S01E03.webm
+```
+
+```
 https://cdn.discordapp.com/attachments/928203131429486622/928204272145940530/Arcane-S01E04.webm
+```
+
+```
 https://cdn.discordapp.com/attachments/928203131429486622/928204668507660298/Arcane-S01E05.webm
+```
+
+```
 https://cdn.discordapp.com/attachments/928203131429486622/928204671275917312/Arcane-S01E06.webm
+```
+
+```
 https://cdn.discordapp.com/attachments/928203131429486622/928204921277382656/Arcane-S01E07.webm
+```
+
+```
 https://cdn.discordapp.com/attachments/928203131429486622/928204923781414972/Arcane-S01E08.webm
+```
+
+```
 https://cdn.discordapp.com/attachments/928203131429486622/928205012960690226/Arcane-S01E09.webm
- 
+```
  
 ### Avatar ECE [2009] [VP9/OPUS]
+```
 https://cdn.discordapp.com/attachments/475304610567946240/887138218045222912/Avatar_ECE_2009.webm
- 
+```
  
 ### Avengers: Endgame [2019] [VP9/OPUS]
+```
 https://cdn.discordapp.com/attachments/730407187351994429/872294186156707890/Avengers_Endgame_2019.webm
- 
+``` 
  
 ### Avengers: Infinity War [2018] [VP9/OPUS]
+```
 https://cdn.discordapp.com/attachments/730407187351994429/872688643851034684/Avengers_Infinity_War_2018.webm
- 
+```
  
 ### Baby Driver [2017] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/898454954627452948/Baby_Driver_2017.webm
