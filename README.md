@@ -136,20 +136,56 @@ https://cdn.discordapp.com/attachments/777733936172367903/859338321800200192/BEA
 ```
 https://cdn.discordapp.com/attachments/777733936172367903/859340478712119316/BEASTARS_S1E12.mp4
 ```
- 
+
+## Season 1
+### Episode 1
+```
 https://cdn.discordapp.com/attachments/777733936172367903/863062082501214218/BEASTARS_S2E1.mp4
+```
+### Episode 2
+```
 https://cdn.discordapp.com/attachments/777733936172367903/863064114635735120/BEASTARS_S2E2.mp4
+```
+### Episode 3
+```
 https://cdn.discordapp.com/attachments/777733936172367903/863066389849309264/BEASTARS_S2E3.mp4
+```
+### Episode 4
+```
 https://cdn.discordapp.com/attachments/777733936172367903/863067908992270346/BEASTARS_S2E4.mp4
+```
+### Episode 5
+```
 https://cdn.discordapp.com/attachments/777733936172367903/863071084869845033/BEASTARS_S2E5.mp4
+```
+### Episode 6
+```
 https://cdn.discordapp.com/attachments/777733936172367903/863074285391577148/BEASTARS_S2E6.mp4
+```
+### Episode 7
+```
 https://cdn.discordapp.com/attachments/777733936172367903/863223109192253490/BEASTARS_S2E7.mp4
+```
+### Episode 8
+```
 https://cdn.discordapp.com/attachments/777733936172367903/863224608979550248/BEASTARS_S2E8.mp4
+```
+### Episode 9
+```
 https://cdn.discordapp.com/attachments/777733936172367903/863226120471314462/BEASTARS_S2E9.mp4
+```
+### Episode 10
+```
 https://cdn.discordapp.com/attachments/777733936172367903/863227746761965598/BEASTARS_S2E10.mp4
+```
+### Episode 11
+```
 https://cdn.discordapp.com/attachments/777733936172367903/863764135639515166/BEASTARS_S2E11.mp4
+```
+### Episode 12
+```
 https://cdn.discordapp.com/attachments/777733936172367903/863419386382516224/BEASTARS_S2E12.webm
- 
+```
  
 ## BEASTARS S1E1-S2E12 [2020-2021] [ENGSUB] [HARDSUB] [WEBM] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/730407187351994429/898118863982567464/BEASTARS_S01E01_-_Their_Determination.webm
