@@ -80,22 +80,62 @@ https://cdn.discordapp.com/attachments/730407187351994429/872688643851034684/Ave
 ```
  
 ## Baby Driver [2017] [VP9/OPUS]
+```
 https://cdn.discordapp.com/attachments/730407187351994429/898454954627452948/Baby_Driver_2017.webm
- 
+```
+
  
 ## BEASTARS S1E1-S2E12 [2020-2021] [ENGSUB] [HARDSUB] [MP4] [H.264/AAC]
+
+## Season 1
+### Episode 1
+```
 https://cdn.discordapp.com/attachments/777733936172367903/858297392909516871/BEASTARS_S1E1.mp4
+```
+### Episode 2
+```
 https://cdn.discordapp.com/attachments/777733936172367903/858297399462461450/BEASTARS_S1E2.mp4
+```
+### Episode 3
+```
 https://cdn.discordapp.com/attachments/777733936172367903/858328629539504138/BEASTARS_S1E3.mp4
+```
+### Episode 4
+```
 https://cdn.discordapp.com/attachments/777733936172367903/858377123444949022/BEASTARS_S1E4.mp4
+```
+### Episode 5
+```
 https://cdn.discordapp.com/attachments/777733936172367903/859328176571809822/BEASTARS_S1E5.mp4
+```
+### Episode 6
+```
 https://cdn.discordapp.com/attachments/777733936172367903/859329579109580830/BEASTARS_S1E6.mp4
+```
+### Episode 7
+```
 https://cdn.discordapp.com/attachments/777733936172367903/859331140787109888/BEASTARS_S1E7.mp4
+```
+### Episode 8
+```
 https://cdn.discordapp.com/attachments/777733936172367903/859332622128119808/BEASTARS_S1E8.mp4
+```
+### Episode 9
+```
 https://cdn.discordapp.com/attachments/777733936172367903/859333962786537472/BEASTARS_S1E9.mp4
+```
+### Episode 10
+```
 https://cdn.discordapp.com/attachments/777733936172367903/859335927524098068/BEASTARS_S1E10.mp4
+```
+### Episode 11
+```
 https://cdn.discordapp.com/attachments/777733936172367903/859338321800200192/BEASTARS_S1E11.mp4
+```
+### Episode 12
+```
 https://cdn.discordapp.com/attachments/777733936172367903/859340478712119316/BEASTARS_S1E12.mp4
+```
  
 https://cdn.discordapp.com/attachments/777733936172367903/863062082501214218/BEASTARS_S2E1.mp4
 https://cdn.discordapp.com/attachments/777733936172367903/863064114635735120/BEASTARS_S2E2.mp4
