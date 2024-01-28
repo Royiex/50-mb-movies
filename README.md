@@ -287,19 +287,22 @@ https://cdn.discordapp.com/attachments/730407187351994429/898392444708724787/BEA
 ### Episode 12
 ```
 https://cdn.discordapp.com/attachments/730407187351994429/898392555933270016/BEASTARS_S02E12_-_The_Taste_of_Rebellion.webm
- 
+```
  
 ## Bee Movie [2007] [VP9/OPUS]
+```
 https://cdn.discordapp.com/attachments/730407187351994429/899230908576583700/Bee_Movie_2007.webm
- 
+``` 
  
 ## Birdemic [2010] [CUT OPENING] [MP4] [VP9/AAC]
+```
 https://cdn.discordapp.com/attachments/677266163994198020/956258770588155985/Birdemic_2010_50mb.mp4
- 
+ ```
  
 ## Black Widow [2021] [VP9/OPUS]
+```
 https://cdn.discordapp.com/attachments/718365943247536228/871726538532474880/Black_Widow_2021.webm
- 
+ ```
  
 ## Brand New Animal (BNA) S1E1-S1E12 [2020] [ENGSUB] [HARDSUB] [MP4] [H.264/AAC]
 https://cdn.discordapp.com/attachments/779320852353122334/874588116525129728/BNA_S1E1.mp4
@@ -384,40 +387,49 @@ https://cdn.discordapp.com/attachments/733513162510565377/901285728401649744/Bre
  
  
 ## Cinderella [1950] [VP9/OPUS]
+```
 https://cdn.discordapp.com/attachments/730407187351994429/899240528565116978/Cinderella_1950.webm
- 
+ ```
  
 ## Cloudy with a Chance Of Meatballs [2009] [WEBM] [VP9/AAC]
+```
 https://cdn.discordapp.com/attachments/730407187351994429/880783297406435418/Cloudy_with_a_Chance_of_Meatballs_2009.webm
- 
+ ```
  
 ## Contagion [2011] [VP9/OPUS]
+```
 https://cdn.discordapp.com/attachments/730407187351994429/872441824336293898/Contagion_2011.webm
- 
+ ```
  
 ## Coraline [2009] [VP9/OPUS]
+```
 https://cdn.discordapp.com/attachments/733513162510565377/904108497300488253/Coraline_2009.webm
- 
+ ```
  
 ## Despicable Me [2010] [VP9/OPUS]
+```
 https://cdn.discordapp.com/attachments/730407187351994429/899206582880055346/Despicable_Me_2010.webm
- 
+ ```
  
 ## Don't Look Up [2021] [VP9/OPUS]
+```
 https://cdn.discordapp.com/attachments/798809061385699408/925306826281611314/Dont_Look_Up_2021.webm
- 
+ ```
  
 ## Downfall [2004] [VP9/OPUS]
+```
 https://cdn.discordapp.com/attachments/815500470188638259/874907350895575040/Downfall_2004.webm
- 
+ ```
  
 ## Dune [2021] [VP9/OPUS]
+```
 https://cdn.discordapp.com/attachments/677266163994198020/918055226890665994/Dune_2021.webm
- 
+ ```
  
 Earthquake [2016] [ENGSUB] [HARDSUB] [MP4] [H.264/AAC]
+```
 https://cdn.discordapp.com/attachments/730407187351994429/871973216497860668/Earthquake_2016.mp4
- 
+ ```
  
 Encanto [2021] [VP9/OPUS]
 https://cdn.discordapp.com/attachments/677266163994198020/931768015677186048/Encanto_2021.webm
